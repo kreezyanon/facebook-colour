@@ -1,4 +1,4 @@
-# facebook-to change colour
+# facebook-to change colour on Facebook
 fb colour
       Copy and paste this link TO change colour
     
